@@ -1,4 +1,4 @@
-### Hi there 👋
+Namaste,I'm Anup Maharjan! 👋
 
 - 🌱 I’m currently learning Web Dev.........
 
